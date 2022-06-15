@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-:briefcase Available to Work!
+💼 Available to Work!
 
 Here are some ideas to get you started:
 
