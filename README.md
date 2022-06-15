@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-#I am Gonzalo Medina
-##E-mail: mgmediaweb@gmail.com
+# I am Gonzalo Medina
+## E-mail: mgmediaweb@gmail.com
 
 💼 Available to Work!
 
